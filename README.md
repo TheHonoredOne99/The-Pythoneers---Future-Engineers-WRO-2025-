@@ -1,1 +1,0 @@
-# The-Pythoneers---Future-Engineers-WRO-2025-
